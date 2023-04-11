@@ -7,7 +7,7 @@
 - 🔭 I’m currently working on Web Development & Game Development
 - 🌱 I’m currently learning Game Development
 - 👯 I’m looking to collaborate on Games & Websites
-- ☎️ How to reach me: 9563087630
+- ☎️ How to reach me: 9569087960
 - 📫 How to reach me-> shukla.ambuj.2016626@gmail.com 
 
 <hr>
